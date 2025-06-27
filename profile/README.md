@@ -27,4 +27,15 @@ Upskirt photos, especially involving minors or intimate body parts, are explicit
 Distributing such images may violate both unlawful surveillance and non-consensual pornography laws 
 
 Other Sources :
+<a href="https://myanimelist.net/profile/Forumcandid">Myanimelist</a>
+<a href="https://x.com/thecandidgirls">Twitter</a>
+<a href="https://www.facebook.com/groups/forumcandidgirls">Facebook</a>
+<a href="https://filmfreeway.com/CandidForum">Filmfreeway</a>
+<a href="https://www.goodreads.com/user/show/191513369-candid-forum">Goodreads</a>
+<a href="https://www.pinterest.com/forumcandid/">Pinterest</a>
+<a href="https://forumcandid.doorkeeper.jp/">Doorkeeper</a>
+<a href="https://candidforum.quora.com/">Quora</a>
+<a href="https://www.deviantart.com/candidforum">Deviantart</a>
+<a href="https://letterboxd.com/candidgirls/list/candid-forum/">Letterboxd</a>
+<a href="https://medium.com/candidgirls/free-candid-videos-of-girls-in-public-bfebc7046059">Medium</a>
 <a href="https://forums.unrealengine.com/t/candid-forum-videos-of-girls-in-public/2581462">Forum Unrealengine</a>
