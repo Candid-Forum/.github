@@ -39,3 +39,11 @@ Other Sources :
 <a href="https://letterboxd.com/candidgirls/list/candid-forum/">Letterboxd</a>
 <a href="https://medium.com/candidgirls/free-candid-videos-of-girls-in-public-bfebc7046059">Medium</a>
 <a href="https://forums.unrealengine.com/t/candid-forum-videos-of-girls-in-public/2581462">Forum Unrealengine</a>
+<a href="https://website.informer.com/candidgirls.org">Website Informer</a>
+<a href="https://www.ssllabs.com/ssltest/analyze.html?d=forum.candidgirls.org">Ssllabs</a>
+<a href="https://www.flaru.com/en/forum.candidgirls.org/">Flaru</a>
+<a href="https://www.vedbex.com/whois/candidgirls.org">Vedbex</a>
+<a href="https://updownradar.com/status/forum.candidgirls.org">Updownradar</a>
+<a href="https://www.websitedown.info/forum.candidgirls.org">Websitedown</a>
+<a href="https://candid-forum.com/forumcandid">Candid Forum</a>
+<a href="https://bio.link/forumcandid">Biolink</a>
