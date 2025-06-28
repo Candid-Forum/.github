@@ -47,3 +47,5 @@ Other Sources :
 <a href="https://www.websitedown.info/forum.candidgirls.org">Websitedown</a>
 <a href="https://candid-forum.com/forumcandid">Candid Forum</a>
 <a href="https://bio.link/forumcandid">Biolink</a>
+<a href="https://forums.unrealengine.com/t/videos-and-photos-of-candid-girls-in-public/2583156">Twinmotion</a>
+<a href="https://www.tumblr.com/communities/forum-candid">Tumblr</a>
